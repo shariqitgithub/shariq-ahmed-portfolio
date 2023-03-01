@@ -1,2 +1,0 @@
-# Shariq-Ahmed-Portfolio
-Portfolio
